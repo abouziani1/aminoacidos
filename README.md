@@ -1,1 +1,0 @@
-# aminoacidos
